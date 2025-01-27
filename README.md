@@ -1,7 +1,6 @@
 - 👋 Hi, I’m Eng-Nooralhomsi
 - 👀 I’m interested in Renewable Energy
 - 🌱 I’m currently learning Revet program and Mechanical system 
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me nooralhomsi11@gmail.com , 
 - 😄 Pronouns: she
 - ⚡ Fun fact: love to sleep 
